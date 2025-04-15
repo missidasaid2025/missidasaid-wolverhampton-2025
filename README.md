@@ -9,3 +9,5 @@ Miss Ida could be a dignified and wise-looking senior black woman. She might hav
 In terms of attire, she could be wearing a professional yet comfortable outfit, perhaps a well-tailored blouse with a soft cardigan or a stylish yet practical dress. She might also have a subtle, serene smile, exuding the calm confidence that comes from a lifetime of learning and helping others.
 
 ![image](https://github.com/user-attachments/assets/b242334a-ae7b-4822-9a50-4f77407bf49f)
+
+![image](https://github.com/user-attachments/assets/3a53de53-0e41-44b0-9e42-9d56959a3eea)
