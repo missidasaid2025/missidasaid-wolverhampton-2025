@@ -4,4 +4,8 @@ Here’s my interpretation of Miss Ida:
 Miss Ida could be a dignified and wise-looking senior black woman. She might have warm, expressive eyes that reflect years of experience and kindness. Perhaps she wears glasses perched on the bridge of her nose, adding to her thoughtful demeanour. Her hair might be silver-grey, styled neatly, showcasing her elegance.
 In terms of attire, she could be wearing a professional yet comfortable outfit, perhaps a well-tailored blouse with a soft cardigan or a stylish yet practical dress. She might also have a subtle, serene smile, exuding the calm confidence that comes from a lifetime of learning and helping others.
 Here's a visual interpretation for you:
-![image](https://github.com/user-attachments/assets/7b540a72-bd02-4e3b-a6f5-ef49d8071d83)
+Here’s my interpretation of Miss Ida:
+Miss Ida could be a dignified and wise-looking senior black woman. She might have warm, expressive eyes that reflect years of experience and kindness. Perhaps she wears glasses perched on the bridge of her nose, adding to her thoughtful demeanour. Her hair might be silver-grey, styled neatly, showcasing her elegance.
+In terms of attire, she could be wearing a professional yet comfortable outfit, perhaps a well-tailored blouse with a soft cardigan or a stylish yet practical dress. She might also have a subtle, serene smile, exuding the calm confidence that comes from a lifetime of learning and helping others.
+
+![image](https://github.com/user-attachments/assets/b242334a-ae7b-4822-9a50-4f77407bf49f)
